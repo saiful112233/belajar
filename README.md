@@ -1,0 +1,2 @@
+# belajar
+hi im studyng :)
